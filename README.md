@@ -1,0 +1,2 @@
+# kufurengelleme
+Küfürleri engellr
